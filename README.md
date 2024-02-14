@@ -16,7 +16,7 @@ Join me in developing a Waste Food Management System aimed at reducing food wast
 
 
 📫 Get in Touch 🚀
-Shoot me an email at shwetagoghate8@example.com 📧. I'm always up for a chat about coding or anything else!
+Shoot me an email at shwetagoghate8@gmail.com 📧. I'm always up for a chat about coding or anything else!
 
 ⚡ Fun Fact 💫
 Did you know? When I'm not coding, ⚡ Fun Fact 💫
