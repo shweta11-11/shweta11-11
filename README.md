@@ -1,4 +1,4 @@
-🌟 Welcome to Shweta Gaghate's GitHub Universe! 🚀
+🌟 Welcome to Shweta Godghate's GitHub Universe! 🚀
 
 About Me 🚀
 Hey there! I'm Shweta Gaghate, a coder from Nagpur, India. I love building cool stuff with technology. Right now, I'm working on making a Waste_Food_Management_System using Python.
